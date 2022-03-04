@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jaya Prakash Veganti (@Jayking511)
-- 👀 I’m interested in Cybersecurity
-- 🌱 I’m currently a Student at Sreenidhi Institute of Science and Technology
+- 🌱 Currently a Student at Sreenidhi Institute of Science and Technology
+- 👀 Interested in Cybersecurity
 - 📫 Contact me at prakashchowdaryveganti511@gmail.com
 
 
